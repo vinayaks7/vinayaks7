@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vinayakshivakumar7@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11YQpYUWccAlFvmscKGsIT2cp4QudzLFK/view?usp=sharing](https://drive.google.com/file/d/11YQpYUWccAlFvmscKGsIT2cp4QudzLFK/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/17xbxLDGI7AzJjNaySAU_qc25s0Fc2lIw/view](https://drive.google.com/file/d/17xbxLDGI7AzJjNaySAU_qc25s0Fc2lIw/view)
 
 - ⚡ Fun fact **Look at the error, not at the code!!**
 
